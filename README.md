@@ -26,11 +26,11 @@
 
 
 # MOBILE
+![iPhone 12 Pro-1736040924725](https://github.com/user-attachments/assets/04023892-02a2-4fe3-b011-40d6e9254b84)
 
 
 
 
-![screencapture-127-0-0-1-5500-index-html-2025-01-04-20_41_35](https://github.com/user-attachments/assets/1efc69e2-117c-40e2-835d-f876f9309de5)
 
 
 
